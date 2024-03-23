@@ -16,10 +16,10 @@ Lo que más me gusta de la programación es como lleva la mente a tener que pasa
 Desde chico me interesó las artes marciales, volvia desesperado del colegio para ver dragon ball Z, eso me llevó a desde muy chico entrenar y finalmente empezar a entrenar kick boxing a los 14 años.
 Me adentré en la competencia amateur a los 16 años, para luego a los 18 debutar en la categoría semi profesional.
 
+![WhatsApp Image 2024-03-23 at 18 14 37](https://github.com/pdepjm/2024-tp0-presentacion-Valentin-Sosa/assets/152668312/b1950761-2904-40fa-b6f5-f45df99a3d01)
 
-
-
+![WhatsApp Image 2024-03-23 at 18 14 37 (1)](https://github.com/pdepjm/2024-tp0-presentacion-Valentin-Sosa/assets/152668312/e8ff47d1-ba75-4fc3-9d83-11ede5a172f0)
 
 Discrepando mucho de lo que se puede llegar a creer, tanto el kick boxing como los otros deportes de contacto, sea boxeo, mma, etc, son deportes donde se requiere mucha inteligencia y el saber reaccionar de la mejor manera bajo presión, ya que una mala decisión podría terminar en K.O. Se trata de un deporte donde tenes que plantear una estrategia según el tipo de oponente (Si es más alto, más bajo, es más pateador, es más boxeador), todos factores que te llevan a tener que actuar bajo un pensamiento lógico, de dónde y cómo actuar.
 Muchos peleadores lo comparan con el ajedrez, como una batalla de estrategia entre dos oponentes donde se tiene que anticipar, planear y engañar al otro en cuestión de segundos.
-Esto es lo que me hace amar este deporte, que trae consigo respeto y disciplina.
+Esto es lo que me hace amar este deporte, que trae consigo la enseñaza respeto y disciplina.
