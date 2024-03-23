@@ -1,6 +1,7 @@
 # Presentación Valentín Sosa.
-Legajo: 214.158-9
-![WhatsApp Image 2024-03-23 at 17 35 23](https://github.com/pdepjm/2024-tp0-presentacion-Valentin-Sosa/assets/152668312/23eff1c2-cc2d-47c4-addd-b3d66dfefe2c)
+Legajo: 214.158-9.
+
+![fotoPresetacion](https://github.com/pdepjm/2024-tp0-presentacion-Valentin-Sosa/assets/152668312/f7629f9a-f3ce-4b76-bb41-4cef70bb087d)
 
 ## Sobre mi
 
